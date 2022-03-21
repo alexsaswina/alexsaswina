@@ -1,1 +1,1 @@
-https://discord.com/users/513933527583293442
+discord.gg/sarsilmaz discord.gg/pornland
